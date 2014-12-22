@@ -36,9 +36,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The counsellor Exactly pourtraited in two bookes. VVherein the offices of magistrates, the happie li
+
+1. ❧ TO THE MOST excellent and moſt mightie Prince Auguſtus King of Polonia. &c.
+
 #####Body#####
-The counsellor Exactly pourtraited in two bookes. VVherein the offices of magistrates, the happie li
+
+1. ❧ THE FIRST BOOKE.
+
+1. ❧ The ſecond Booke.
+
 **Types of content**
 
   * There are 38 **verse** lines!
